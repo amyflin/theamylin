@@ -6,3 +6,5 @@ I only know the topics might includes Hay day, corona, real estate, how to trans
 Have no idea what else she wants to put here.
 
 I will let Amy give a proper readme.
+
+Michael is correct. It will be about Hay Day, corona, real estate and how to transfer money.
